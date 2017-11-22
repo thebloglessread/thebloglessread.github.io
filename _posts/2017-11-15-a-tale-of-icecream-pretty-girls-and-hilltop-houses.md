@@ -63,6 +63,8 @@ date:   2017-11-15 05:00:00 +0530
     <b>xxx</b>
 </p>
 
+![Kerala](/images/kerala.jpg)
+
 <p style="text-align: justify">I know this guy whose Facebook profile (long since deleted) was a hyperlink to my childhood. Now-forgotten-but-once-best-friends; blokes I hated with every fibre of my being (and all the more forgotten for it, surprisingly); and even that girl - indelibly seared into memory as an ideal beyond anything my young imagination had ever conjured - whom I saw just once at our annual inter-school meet; they were all there in his list of friends. Now, how this human paraquat (if I may use an insult phrased by The Dude) whom I, even after all these years, still feel like doing in with a brick, ever managed to get in touch with all these people, eons into adulthood, is a subject for study by far subtler minds than my own. This post isn’t about him.</p>
 
 <p style="text-align: justify">There was this day when I came across one such familiar face, a senior at school by 4 or 5 years. And as she’s very pretty, I still remember her name <i>and</i> her face, which is more than I can say for most other schoolmates of mine. Now, if you think I'm going to entertain you with some story where I made a fool of myself all those years ago, you're in for disappointment. Four years is an unbridgeable chasm in school. She might as well have been twenty years older. <i>This</i> is more of a topography reminisce.</p>
@@ -89,4 +91,4 @@ date:   2017-11-15 05:00:00 +0530
 
 <p style="text-align: justify">I suppose that story sucked. Anyway…</p>
 
-<p style="text-align: justify">Until that link on Facebook, I'd forgotten all about the shortcut to my friend's place. Maybe I'll see if it's still there, the next time I go home. Most likely, I'll run into a wall somewhere. We like to build walls, don't we? "Like an old-stone savage." Not that I have a right to sound high and mighty. If I didn't like to build walls myself, I'd remember more.</p>
+<p style="text-align: justify">Until that link on Facebook, I'd forgotten all about the shortcut to my friend's place. Maybe I'll see if it's still there, the next time I go home. Most likely, I'll run into a wall somewhere. We like to build walls, don't we? "Like an old-stone savage armed.” Not that I have a right to sound high and mighty. If I didn't like to build walls myself, I'd remember more.</p>
