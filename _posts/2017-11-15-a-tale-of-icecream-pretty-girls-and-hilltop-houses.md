@@ -64,7 +64,11 @@ date:   2017-11-15 05:00:00 +0530
 </p>
 
 <p style="text-align: justify">
-    <i>Even during famines that killed millions, grain was exported to England and global markets from India. Not only would the government do nothing for the people, they’d actively discourage private charity and relief funds as setting a bad precedent (or as one viceroy would put it: “humanitarian humbug”). In a rare instance where an administrator tried to alleviate a famine by importing grain from Burma, he was castigated by the government and the press alike. The Economist attacked him for allowing Indians to think “it is the duty of the Government to keep them alive.” The man made amends during the Madras famine of a decade later. He set up experiments, reducing healthy young men to skeletons, to determine the minimum amount of food Indians could survive on. This led to labour camps, where inmates were given fewer daily calories than in the Buchenwald concentration camp 60 years later.</i>
+    <i>Even during famines that killed millions, grain was exported to England and global markets from India. Not only would the government do nothing for the people, they’d actively discourage private charity and relief funds as setting a bad precedent (or as one viceroy would put it: “humanitarian humbug”). In a rare instance where an administrator tried to alleviate a famine by importing grain from Burma, he was castigated by the government and the press alike. The Economist attacked him for allowing Indians to think “it is the duty of the Government to keep them alive.”</i>
+</p>
+
+<p style="text-align: justify">
+    <i>The man made amends during the Madras famine of a decade later. He set up experiments, reducing healthy young men to skeletons, to determine the minimum amount of food Indians could survive on. This led to labour camps, where inmates were given fewer daily calories than in the Buchenwald concentration camp 60 years later.</i>
 </p>
 
 <p style="text-align: justify">
@@ -87,7 +91,7 @@ date:   2017-11-15 05:00:00 +0530
     <i>The post below describes my corner of the land, Kerala. A state very different from much of the rest of the country. And those differences are cause for celebration, an affirmation of the very idea of India.</i>
 </p>
 
-<p style="text-align: justify"><b>Where there are quotes without attribution, it’s a reference to Shashi Tharoor’s “<a href='https://www.goodreads.com/book/show/32618967-an-era-of-darkness'>An Era of Darkness</a>;” but there are other sources, too, so mistakes above are likely mine and not his. The other book I’d like to plug for no reason other than that it’s vaguely topical is Ramachandra Guha’s “<a href='https://www.goodreads.com/book/show/356824.India_After_Gandhi'>India After Gandhi</a>.” Both contain material I wish had been taught to me in school, and I’m completely baffled why they weren’t.</b></p>
+<p style="text-align: justify"><b>Where there are quotes without attribution, it’s a reference to Shashi Tharoor’s “<a href='https://www.goodreads.com/book/show/32618967-an-era-of-darkness'>An Era of Darkness</a>;” but there are other sources, too, so mistakes above are likely mine and not his. The book expands upon <a href='https://vimeo.com/133904367'>his speech</a> at the Oxford Union debate in 2015. The other book I’d like to plug for no reason other than that it’s vaguely topical is Ramachandra Guha’s “<a href='https://www.goodreads.com/book/show/356824.India_After_Gandhi'>India After Gandhi</a>.” Both contain material I wish had been taught to me in school, and I’m completely baffled why they weren’t.</b></p>
 
 <p style="text-align: center">
     <b>xxx</b>
