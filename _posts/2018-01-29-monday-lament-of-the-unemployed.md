@@ -1,0 +1,76 @@
+---
+layout: post
+title: Monday lament of the unemployed
+date: 2018-01-29 01:00:00 +0530
+---
+<p style="text-align: justify"><i>“My words filled the room, from blackboard to blackboard, they hit the ceiling and bounced off, they covered Mrs. Fretag's shoes and piled up on the floor. Some of the prettiest girls in the class began to sneak glances at me. All the tough guys were pissed. Their essays hadn't been worth shit. I drank in my words like a thirsty man. I even began to believe them. All too soon it was over.</i></p>
+
+<p style="text-align: justify"><i>I got up and walked out. I began my walk home. So, that's what they wanted: lies. Beautiful lies. That's what they needed. People were fools. It was going to be easy for me.”</i> - Ham on Rye</p>
+
+<p style="text-align: justify">Oh, how I wish I could, right now, be in a coffin-shaped meeting room, windowless and truthless, bathed in fluorescent light, listening to and telling beautiful lies. But all I'm doing is sipping tea in a cafe on the roof of the world, watching Leh below me turn from blinding white to bright yellow to reddish orange to purple. Even after the valley's covered in darkness, the glaciers on its fearsome guardians will glow orange for a while yet.</p>
+
+<p style="text-align: justify">I really should be doing something more important with my life.</p>
+
+<p style="text-align: center">
+    <b>xxx</b>
+</p>
+
+<p style="text-align: justify">Jullay! I'm sorry for missing these last few Mondays but I couldn't help it. Due to my current employment crisis, I decided to leave my home village near Leh and walk to that valley over the Greater Himalayas, called Spiti, in search of work.</p>
+
+<p style="text-align: justify">I left Chilling in the middle of August with a little knapsack over my shoulder, tied to a long stick. My walk began through the prosperous villages of the hot valley of Markha, then over the high passes into the grasslands of Kharnak - so high, so cold, so green - home to nomadic shepherds solitary and fearless, and then into the Greater Himalayas, where for a week there was no life at all - no nomads, not even grass - just rock, ice, and snow, capped by a pass so difficult that I had to walk over a crevasse-ridden glacier for hours just to get to it, braving winds that’d blow a horse into Tibet.</p>
+
+<p style="text-align: justify">In all this time, I've had only a few snow leopards, wild horses, wolves, and blue sheep to keep me company. Nothing interesting. But I hear that in your magnificent cities in the plains, you have true animals in business suits, snarling and gesticulating at each other over scratches on their horses from Germany and Italy; that these horses have several hundred times the power of our poor Ladakhi horses?</p>
+
+<p style="text-align: justify">We've heard of your mighty passes like Silk Board La that make our tiny ones here look like child's play. And yet we hear you leave your homes at 9 AM on your mighty beasts, reach the pasture lands of your workplaces around noon, and update statuses on Facebook all day, while your European animals presumably graze on the rich grasslands and forests in the vicinity? That's only a 3-hour commute! It took me 23 days to get to Kibber. :(</p>
+
+<p style="text-align: justify">And in those 3 hours, what vistas you must get to see! I hear that your lands are filled with two magical substances called <i>plastic</i> and <i>concrete</i> that stretch from horizon to horizon? How lovely! I tell you, if I have to see one more stream, glacier, rock formation, high-altitude lake, or alpine forest, I'll throw up; I'm so sick of the monotony. When I crossed into Gyama, all I saw was a meadow stretching as far as the eye could see and a few wild horses racing up and down this valley at a height rolling between 5150 and 5350 metres. I was the only human in the vicinity; how I longed for the mythical city parks of our fairy tales, thronging with people shoulder-to-shoulder revelling in their communion with dog shit!</p>
+
+<p style="text-align: justify">Speaking of the wonders of the plains, I'm disappointed to say that in the mountains where I walk, you may drink water flowing down from the glaciers straight up, but it’ll quench your thirst and do no more. I hear similar attempts in your cities will magically transport you to places with white linen and people with soothing bedside manners, where you can stay for weeks and do no work? How exciting!</p>
+
+<p style="text-align: justify">My only rest in all these weeks was for three days on the banks of a 4600-metre-high lake called Tso Moriri. It has only fresh water in it. How boring that must sound to people from the lands of Bellandur Tso, whose physics-defying properties have made headlines even here - a lake that is so much more than just water!</p>
+
+<p style="text-align: justify">How trivial even my hardest pass, the Parang La, must sound to those who traverse the Domlur La! Your engineering skills are revered here. Without even trying, just by sitting in your offices and consuming chips in your cosy homes, you’ve managed to melt glaciers thousands of kilometres away, dry up our lakes to free valuable land, exterminate hundreds of thousands of species of useless animals, and make vast tracts of forests disappear; where we huddle for a few degrees of warmth under a high pass, you’ve devised techniques for warming the entire globe! The Parang La, that only nature made, is already 5600 metres high. But if it took beings with your god-like powers over 5 years to make the Domlur La, how high must it be? 9000 or 10,000 metres? Is that why all you city people are always photographed in masks?</p>
+
+<p style="text-align: justify"> Anyway, I must carry on with my weary journey. I still have not found work. While I walk over these wretched mountains, I'll imagine myself in the wondrous cities south of the Himalayas, and continue to marvel at the tales from there.</p>
+
+<p style="text-align: justify">Oh, misery! Oh, woe! Life in the mountains is so hard!</p>
+
+<p style="text-align: center">
+    <b>xxx</b>
+</p>
+
+<p style="text-align: justify">There was no work for me in Spiti. So they pointed me over the Pir Panjal, towards the pretty town of Manali. The path was along a blue ribbon, nestled between barren mountains. Bent double against driving snow (that would soon turn into a rain that lashed for two days straight), I crossed a glacier and saw the world change from high-altitude desert to an explosion of colours and knee-high grass, with streams everywhere and clouds forming clumps for me to walk through. The terrain changed, too, from gravel to mud and big blocks of slippery rock -  I slid and scraped down the mountains as much as I walked. After a lifetime spent in the leeward side of the Himalayas, I had in my sights the tree-line of a forest so thick it was frightening to walk through.</p>
+
+<p style="text-align: justify">But there was no work for me in Manali, either.</p>
+
+<p style="text-align: justify">I should try my luck over the Dhauladhar, in Dharamshala. If they wouldn't have me, no matter, it was only thirty kilometres on a downhill highway to the plains, the fabled land of riches and Civilisation.</p>
+
+<p style="text-align: justify">Now, the Dhauladhar is a tiny range by Himalayan standards - its tallest peak is only 5600 metres high and it isn't particularly long either - but the ten days it took me to walk across it were the toughest of my life. It was day after day of hard ascents and steep descents. The two 4800-metre glacier-capped passes had moraine all around them - at times, I wasn't so much walking on a trail as on a place where two landslides met and kissed. I passed an enormous dog with eyes like the devil, a vulture circled over me, I cursed and stumbled on the narrowest and stoniest paths I've ever been on, and shivered with cold at nights and alongside lakes that had already begun to freeze.</p>
+
+<p style="text-align: justify">On the sixth day, there was Bara Bhangal, a village reachable only by foot over the high passes, that even Time hesitates before it decides to visit - it does so only once every few decades, huffing and puffing over glaciers and vertiginous passes. It caresses the village briefly before hurrying on, before winter snows in the passes - Bara Bhangal is closed off from the rest of the world for 6 months a year. It's a village of ancient wood-and-stone houses, beautiful gardens up front, a narrow walkway running through the centre, no sewage or drains flowing beside the streets or into the river, friendly villagers, and a forest of massive deodar trees just downstream. I detested it.</p>
+
+<p style="text-align: justify">They remind me of Ladakh and our primitive lifestyle. One that involved no cash, nothing ever thrown away, even human waste put to use, where we grew or made everything we needed, with only the occasional exchange of excess barley for salt on the Silk Route. A lifestyle that contributed 0% to the GDP. Whereas every time there's an oil spill, someone dies of cancer, a war - things that define your society - it contributes positively to that very same measure your famed economists have come up with. <i>6.5 > 0.</i> Even uneducated me can grasp that.</p>
+
+<p style="text-align: justify">The road and the airport touched Leh decades ago, and how proud you should be of us, at how quick we learn! A Ladakhi village keeps two streams, one for drinking, the other for washing. In Leh, you'll note that all of them are uniformly filthy. Such a pretty picture it is to see row after row of water packaged in plastic, driven in trucks over the Himalayas, into the land of glaciers! Contributes to the GDP, too.</p>
+
+<p style="text-align: justify">You've taught us that our fields are worthless, that only paper counts, so every house in Leh is a guesthouse - fields of barley and vegetables turned into blocks of concrete complete with flush toilets - and villages inaccessible by vehicles (and therefore most tourists) are now populated solely by the very young and the very old, our traditional families torn asunder to fit your ideas of a rootless commuter society. You've integrated us into the global economy, so that when a banker in New York gets too greedy, we get to starve to death here. Isn't that more noble, to be one with everything and everyone?</p>
+
+<p style="text-align: justify">Despite having to work hard only during the summer, we put in far less hours than you people do even during those four months. That's just sloth. And yet, the old still work our fields. This is due to our misguided belief that they have a right to remain a part of our everyday lives. But we should treat them like you do your old: give them a place of honour at the dinner table and sideline them from society, to spend their last years as living fossils.</p>
+
+<p style="text-align: justify">Our names rarely give any indication of our gender - traditionally we had no use for that information; we all did the same work in our fields. But you're teaching us otherwise, that people should be divided and subdivided by every category possible - by colour of skin, by birth, by genitals, by passport… That there are certain jobs some of those categories cannot do and some others that they SHOULDN'T do.</p>
+
+<p style="text-align: justify">In some of our more barbarian villages beyond passes too high for the road, you can still see villagers pooling resources, working on each other's fields for no pay, laughing and exchanging stories. (I don’t know why I described that; surely, that’s how your workplaces are too?) They haven't yet been taught about capitalism and slavery; you need those only when you have more land than you can till or when tilling’s beneath you. In time, they’ll learn that greed is good and bring in the poorest and the most desperate from other lands, house them in flimsy tents, keep their children out of schools so that they remain behind to serve too, and then blame the filthy immigrants for all their ills.</p>
+
+<p style="text-align: justify">When enough time has passed and our societies and workplaces are dominated by the homogeneous few, some of us will make token efforts to reverse that. We'll call it <i>diversity campaigns</i> and <i>corporate responsibility</i> and puff out our chests in pride. You’ve taught us so much.</p>
+
+<p style="text-align: justify">As a Ladakhi, I can build a house with my own hands, grow food for an entire year in the short four-month season of our mountainous desert, know every single plant and animal here, and survive for weeks by myself up in the high passes. But we’re uneducated: we can’t quote Newton and we don’t know what the capital of Assyria is. We live like tears in the rain and when we pass on, it’s as if we never existed.</p>
+
+<p style="text-align: justify">You’d die if left on your fertile, rain-blessed lands; all you can ever do is sit at a desk for the one thing you're trained for. You revel in violence and tribalism, where who you are and what you wear determine where you can go and what you can do; where the clock is not just a measure of shadows but ubiquitous commander of life. To thrive in absolute ignorance of our planet and utter contempt for it; scarred and bleeding, surrounded by filth - in your oceans, under your feet, the very air you breathe - but with your clenched fist raised in triumph, your eyes vacant, your jaw set, your boots leaving their indelible marks for long after you’re gone… <i>That</i> is the fruit of true education.</p>
+
+<p style="text-align: justify">You people devote reams of literature and celluloid to the road. But do you know why you love it? It isn't because the road is the ultimate symbol of freedom and escape. You love it because it's precisely the opposite. The greatest joy in being alive is in the subjugation of others. And the road is your most potent weapon towards that end. A road is travelled in both directions but for ideas they're decidedly a one-way street. After all, what could you possibly learn from people like us?</p>
+
+<p style="text-align: justify">A television series I once saw portrays these heroes called the Borg, a monoculture that assimilates all before them into clones of themselves. You are the Borg. And resistance is futile. That is why you love to take to far-off roads and feel the wind in your hair. That twang is the taste of victory, of conquest. The road is how you impose your values on the defenceless.</p>
+
+<p style="text-align: justify">I want your power and your glory.</p>
+
+<p style="text-align: justify">If I'd been educated and gainfully employed behind a desk, I could’ve travelled from Manali to Dharamshala overnight, like you do. Instead, I stood in Manali Bus Stand and wept at the price of buried dinosaur blood. I trekked through Bara Bhangal because I couldn't afford to travel by a chariot of foam and leather, dreaming of gleaming office spaces and antiseptic lives; a chariot pulled by the souls of the ancient dead and our lost greens.</p>
